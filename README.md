@@ -1,6 +1,6 @@
 -  Hi, I’m Tomi
 -  Founder, AI Engineer and Growth Engineer
--  I’m looking to collaborate on intermediate and advanceed projects.
+-  I’m looking to collaborate on intermediate and advanced projects.
 -  You can reach me okanlawon.workconnect@gmail.com
 
 <!---
